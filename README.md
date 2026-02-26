@@ -17,9 +17,9 @@ Financial Analyst - L’Oreal, ACD | Jul 2012 - Dec 2013
 Management Trainee - L’Oreal | Jul 2011 – Jun 2012
 
 Honors & Awards
-Alimama Annual Excellence Award | Performance Rating: 3.75 | Jun 2021
-NIO Power Innovation Award (Silver): POWER EXPRESS Business Model | May 2017
-Renmin Scholarship & Social Practice Excellence Award | SUFE | 2009 – 2010
+Alimama Annual Excellence Award | Performance Rating: 3.75 | Jun 2021  
+NIO Power Innovation Award (Silver): POWER EXPRESS Business Model | May 2017  
+Renmin Scholarship & Social Practice Excellence Award | SUFE | 2009 – 2010  
 
 Education & Programs
 
